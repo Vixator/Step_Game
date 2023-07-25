@@ -1,2 +1,0 @@
-Prithvi Konduru
-Github Repository
